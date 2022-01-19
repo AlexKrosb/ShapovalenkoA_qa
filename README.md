@@ -1,0 +1,1 @@
+# ShapovalenkoA_qa
